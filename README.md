@@ -1,2 +1,3 @@
 Ingwiller libéré  
 Le journal libre, social et écolo d'après... les municipales, le confinement...
+Par l'équipe de "Pour Ingwiller : un engagement naturel".
